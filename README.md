@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hello friend 👋
 
 My name is Inès. I am 22 years old.
 I am a student in :
