@@ -1,6 +1,6 @@
 ### Hello friend 👋
 
-My name is Inès. I am 22 years old.
+My name is Inès. I am 22 years old. French student from Reunion Island based in Paris.
 I am a student in :
 
   - Biology engineering (Master degree) at UTC with a philosophy minor
