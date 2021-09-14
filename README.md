@@ -13,5 +13,22 @@ I will start my internship at [hypnoVR](https://hypnovr.io/fr/?gclid=Cj0KCQjwkIG
 
 
 
-[My Spotify](https://open.spotify.com/playlist/6XsbO5nUAKYwEefKPPUZkh?si=4151e481d3a3496am)
-[My instagram](https://www.instagram.com/nn33sy/)
+[My Spotify o___O](https://open.spotify.com/playlist/6XsbO5nUAKYwEefKPPUZkh?si=4151e481d3a3496am)
+
+
+[My instagram ><](https://www.instagram.com/nn33sy/)
+
+                                \
+                 .___             `.
+    ___              `~\           |               \
+  o~   `.               |         /'                |
+.----._ `|             ,'       /'              _./'
+`o     `\|___       __,|----'~~~~T-----,__  _,'~
+      /~~o   `~>-/|~ '   ' ,   '      '   ~~\_
+     |_      <~   |   ' ,   ' '   '  ' , '     \
+       `-...-'~\./' '     '     '   '   '  , '  >
+                 `-, __'  ,  '  '  , ' ,   '_,'-'
+                   /'   `~~~~~~~|`--------~~\
+                 /'            ,'            `.
+          ~~`---'             /               |
+                           ,-'              _/'
