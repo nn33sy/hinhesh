@@ -16,11 +16,13 @@ I will start my internship at [hypnoVR](https://hypnovr.io/fr/?gclid=Cj0KCQjwkIG
 [My Spotify o___O](https://open.spotify.com/playlist/6XsbO5nUAKYwEefKPPUZkh?si=4151e481d3a3496am)
 
 
-[My instagram ><](https://www.instagram.com/nn33sy/)
+[My instagram 8°oO](https://www.instagram.com/nn33sy/)
 
 My dream project :
+°_° An Ascii Game
 
- °_° An Ascii Game
-  °_° A weird ugly computerish installation
-    °_° A Virtual Reality immersion to a dream Japan inspired by movies
-      (°_°) A Virtual Reality museum of tht History of ethnomusicology
+°_° A weird ugly computerish installation
+
+°_° A Virtual Reality immersion to a dream Japan inspired by movies
+ 
+°_° A Virtual Reality museum of tht History of ethnomusicology
