@@ -10,3 +10,5 @@ I like : creative programming, ecology X tech, art X tech, music, theatre, sceno
 
 I will start my internship at HypnoVR in Septembre 2021. A french startup which makes Virtual reality environment for hypnotherapy.
 https://hypnovr.io/fr/?gclid=Cj0KCQjwkIGKBhCxARIsAINMioKoD03KJmLxb34SZ6heSA4E7ZoyXs8mtvNx-dNr_s_TlxFVoCKVn-EaAvCxEALw_wcB
+
+Spotify : https://open.spotify.com/playlist/6XsbO5nUAKYwEefKPPUZkh?si=da395a3071ec4561
