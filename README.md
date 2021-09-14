@@ -33,3 +33,5 @@ My dream projects :
 °_° A Virtual Reality immersion to a dream Japan inspired by movies
  
 °_° A Virtual Reality museum of tht History of ethnomusicology
+
+°_° Weird AI which send love letters to people
