@@ -19,9 +19,10 @@ I will start my internship at [hypnoVR](https://hypnovr.io/fr/?gclid=Cj0KCQjwkIG
 [My instagram 8°oO](https://www.instagram.com/nn33sy/)
 
 My dream project :
+
 °_° An Ascii Game
 
-°_° A weird ugly computerish installation
+°_° A weird ugly computerish installation / scenography for an opera
 
 °_° A Virtual Reality immersion to a dream Japan inspired by movies
  
