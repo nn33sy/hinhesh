@@ -28,12 +28,12 @@ I will start my internship at [hypnoVR](https://hypnovr.io/fr/?gclid=Cj0KCQjwkIG
 
 My dream projects to do:
 
-°_° An Ascii Game
+ᵒᴥᵒ An Ascii Game
 
-°_° A weird ugly computerish installation / scenography for an opera or a teuf
+ᵒᴥᵒ A weird ugly computerish installation / scenography for an opera or a teuf
 
-°_° A Virtual Reality immersion to a dream Japan inspired by movies
+ᵒᴥᵒ A Virtual Reality immersion to a dream Japan inspired by movies
  
-°_° A Virtual Reality museum of tht History of ethnomusicology
+ᵒᴥᵒ A Virtual Reality museum of tht History of ethnomusicology
 
-°_° Weird AI who sends love letters to people
+ᵒᴥᵒ Weird AI who sends love letters to people
