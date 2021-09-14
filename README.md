@@ -3,8 +3,8 @@
 My name is Inès or n3s. I am 22 years old. French student from Reunion Island based in Paris.
 I am a student in :
 
-  - Biology engineering (Master degree) at UTC with a philosophy minor
-  - Computer Science student at 42
+  <3 Biology engineering (Master degree) at UTC with a philosophy minor
+  <3 Computer Science student at 42
 
 I like : creative programming, ecology X tech, art X tech, music, theatre, scenography, a good joke.
 
