@@ -1,6 +1,6 @@
 ### H333lllllOoOo 👋
 
-My name is Inès or n3s. I am 22 years old. French student from Reunion Island based in Paris.
+My name is Inès or n3s or inhow-ch (42) or hinhesh. I am 22 years old. French student from Reunion Island based in Paris.
 I am a student in :
 
    o° Biology engineering (Master degree) at UTC with a philosophy minor
