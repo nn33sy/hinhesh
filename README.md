@@ -20,6 +20,8 @@ I will start my internship at [hypnoVR](https://hypnovr.io/fr/?gclid=Cj0KCQjwkIG
 
 [My instagram 8°oO](https://www.instagram.com/nn33sy/)
 
+[My  linkedin :( ](https://www.linkedin.com/in/in%C3%A8s-hc/)
+
 [My teenage tumblr °o°](https://shooouuut.tumblr.com/page/4)
 
 
