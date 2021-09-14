@@ -19,7 +19,11 @@ I will start my internship at [hypnoVR](https://hypnovr.io/fr/?gclid=Cj0KCQjwkIG
 [My instagram ><](https://www.instagram.com/nn33sy/)
 
 My dream project :
+
  (°_°) An Ascii Game
+ 
   (°_°) A weird ugly computerish installation 
+  
     (°_°) A Virtual Reality immersion to a dream Japan inspired by movies
+    
       (°_°) A Virtual Reality museum of tht History of ethnomusicology
