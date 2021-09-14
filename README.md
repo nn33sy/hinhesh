@@ -24,7 +24,7 @@ I will start my internship at [hypnoVR](https://hypnovr.io/fr/?gclid=Cj0KCQjwkIG
 
 
 
-My dream projects :
+My dream projects to do:
 
 °_° An Ascii Game
 
