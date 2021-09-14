@@ -8,4 +8,4 @@ I am a student in :
 
 I like : creative programming, ecology X tech, art X tech, music, theatre, scenography, a good joke.
 
-I will start my internship at HypnoVR in Septembre. A french startup which makes VR environment for hypnotherapy.
+I will start my internship at HypnoVR in Septembre 2021. A french startup which makes VR environment for hypnotherapy.
