@@ -7,17 +7,17 @@ I am a student in :
   
   <3 Computer Science student at 42
  
-- - - - ------- ----------  ------ - - - -- --------           ------  ----------------------
+oooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooo
 
 I like : creative programming, ecology X tech, art X tech, music, theatre, scenography, a good joke.
  
-- - - - ------- ----------  ------ - - - -- --------           ------  ----------------------
+oooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooo
 
 I will start my internship at [hypnoVR](https://hypnovr.io/fr/?gclid=Cj0KCQjwkIGKBhCxARIsAINMioKoD03KJmLxb34SZ6heSA4E7ZoyXs8mtvNx-dNr_s_TlxFVoCKVn-EaAvCxEALw_wcB)
  in Septembre 2021. A french startup which makes Virtual reality environment for hypnotherapy.
 
  
-- - - - ------- ----------  ------ - - - -- --------           ------  ----------------------
+oooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooo
 
 
 [My Spotify o___O](https://open.spotify.com/playlist/6XsbO5nUAKYwEefKPPUZkh?si=4151e481d3a3496am)
@@ -26,7 +26,7 @@ I will start my internship at [hypnoVR](https://hypnovr.io/fr/?gclid=Cj0KCQjwkIG
 [My instagram 8°oO](https://www.instagram.com/nn33sy/)
 
  
-- - - - ------- ----------  ------ - - - -- --------           ------  ----------------------
+oooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooo
 
 My dream project :
 
